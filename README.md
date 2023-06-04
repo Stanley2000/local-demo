@@ -16,4 +16,4 @@ Digitalization has greatest potential to influence trade and productivity in Afr
  and opined that "Africa should expect to see further success stories as more countries get converted to digital methods, which make it easier than ever before to access hithero hard to tax domains such as agriculture, the informal sector and the digital economy itself"
  to the Egyptian team led by Ahmed Kamaly, Deputy Minister for Planning Affairs, who noted that "e government services and tech centers have proved advantageous in Egypt by reducing transactioncosts, enhancing investments and reducing the incidence of corruption related with revenue collectionn. "These assertions simpl prove that digitizzatio can help increase the revenue of a nation.
 
- 
+ DISCLAIMER : THIS AINT MY ARTICLE AM JUST USING TO PRACTISE TYPING TO IMPROVE MY TYPING SPEED"
