@@ -17,3 +17,9 @@ Digitalization has greatest potential to influence trade and productivity in Afr
  to the Egyptian team led by Ahmed Kamaly, Deputy Minister for Planning Affairs, who noted that "e government services and tech centers have proved advantageous in Egypt by reducing transactioncosts, enhancing investments and reducing the incidence of corruption related with revenue collectionn. "These assertions simpl prove that digitizzatio can help increase the revenue of a nation.
 
  DISCLAIMER : THIS AINT MY ARTICLE AM JUST USING TO PRACTISE TYPING TO IMPROVE MY TYPING SPEED"
+
+SOCIAL LIFE AND THE MEDICAL IMPLICATION
+The word 'social' in simplest of terms means how an individual relates to the society or people close to him or her . The ways humans live their life has so much effect on their health,  be it  postive or negative.
+The two categories in this regards are: Introverts and Extroverts.
+
+The introverts Peronality represent a group of people who live their lifes only to themselves they are usually quiet and shy. They don't interact freely and hardly do they smile. If they appear in any social gathering they are hardly noticed. Thhis type of people stand a chance of being diagonised by anxiety , neuriosis and host of others
